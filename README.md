@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @LMBFoxifyYT 
+- 👀 I’m interested in Coding and Gaming
+- 🌱 I’m currently learning how to code games
+- 💞️ I’m looking to collaborate on coding games fun games
+- 📫 How to reach me oofyo75@gmail.com
+- I dont talk in vc
